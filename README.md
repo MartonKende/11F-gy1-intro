@@ -1,3 +1,2 @@
 # 11F-gy1-intro
-
-bénisz
+Farkas Márton
